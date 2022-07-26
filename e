@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/703532099839459368/1001374591425466368/bin.zip
+https://cdn.discordapp.com/attachments/703532099839459368/1001390690749657149/bin.zip
